@@ -1,6 +1,4 @@
-# Selling made easy
-
-An app that helps sellers source, list, and manage inventory. Sign Up For Free at https://juiced.io
+# An app that helps sellers source, list, and manage inventory. Sign Up For Free at https://juiced.io
 
 ![Juiced](https://cdn.discordapp.com/attachments/1100565653422870578/1109304080150573096/Github_2023.png)
 
