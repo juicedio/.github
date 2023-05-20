@@ -3,7 +3,12 @@
 
 # Juiced - Selling made easy  
 
+
 ## An app that helps sellers source, list, and manage inventory. Sign Up For Free at juiced.io
+
+
+
+
 
 
 ## Job openings
