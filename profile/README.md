@@ -6,7 +6,7 @@
 
 ## An app that helps sellers source, list, and manage inventory. 
 
-Our mission is to provide people who want to make money selling products online with the fastest, easiest and most awesome solutions to satisfy their needs. Juiced IO’s team is never short for new ideas and are constantly innovating for our users. Our motto is and will always be, customers first.
+Our mission is to provide people who want to make money selling products online with the fastest, easiest and most awesome solutions to satisfy their needs. Juiced’s team is never short for new ideas and are constantly innovating for our users. Our motto is and will always be, customers first.
 
 
 
