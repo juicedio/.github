@@ -29,4 +29,4 @@ Our mission is to provide people who want to make money selling products online 
 🇫   [@juicedioinc](https://facebook.com/juicedioinc)
 
 
-# [Sign Up For Free at juiced.io](https://juiced.io)
+<sub> [Sign Up For Free at juiced.io](https://juiced.io)</sub>
