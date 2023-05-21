@@ -17,7 +17,7 @@ Our mission is to provide people who want to make money selling products online 
 
 ## Download now
 
-📥 Download Juiced on any device and create an account to start selling. Whether you’re a geek who uses Linux, or you're ultra savy with your brand new iPhone 18, Juiced supports all devices. You can instal our latest version of the [Juiced App](https://juiced.io/download) now. 
+📥 Download Juiced on any device and create an account to start selling. Whether you’re a tech wizard who uses Linux, or you're ultra trendy with your brand new iPhone 18, Juiced supports all devices. You can install the latest version of the [Juiced App](https://juiced.io/download) now. 
 
 ## Follow us
 
