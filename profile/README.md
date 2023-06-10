@@ -25,7 +25,7 @@ Our mission is to provide people who want to make money selling products online 
 📷  [@juicedio](https://instagram.com/juicedio)
 🎵  [@juicedio](https://tiktok.com/@juicedio)
 🕴️  [@juicedio](https://linkedin.com/company/juicedio)
-▶️  [@juicedioinc](https://linkedin.com/@juicedioinc)
+▶️  [@juicedioinc](https://youtube.com/@juicedioinc)
 🇫   [@juicedioinc](https://facebook.com/juicedioinc)
 
 
