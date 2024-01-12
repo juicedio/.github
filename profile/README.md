@@ -1,5 +1,5 @@
 
-![Juiced](https://cdn.discordapp.com/attachments/1100565653422870578/1109304080150573096/Github_2023.png)
+![Juiced](https://cdn.discordapp.com/attachments/672849438661804064/1195278098485219398/Discord_Banner_2023.png?ex=65b36879&is=65a0f379&hm=e336258bed057d72c1073936088ff98c03605389efd2437658a3943f9727c7c1&)
 
 # Juiced - Selling made easy  
 
