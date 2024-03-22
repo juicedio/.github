@@ -5,7 +5,7 @@
 
 
 ## Juiced is an AI-powered reseller platform that provides tailored product recommendations, cross-platform listing, inventory/order management, website restock notifications, detailed sales analytics, 70+ premium tutorials and much more. 
-
+‎ 
 
 Our mission is to provide people who want to make money selling products online with the fastest, easiest and most awesome solutions to satisfy their needs. Juiced’s team is never short for new ideas and are constantly innovating for our users. Our motto is and will always be, customers first.
 
