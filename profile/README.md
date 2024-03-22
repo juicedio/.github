@@ -1,10 +1,10 @@
 
 ![Juiced](https://cdn.discordapp.com/attachments/819570082707144795/1220570611412238387/github.jpg?ex=660f6bf6&is=65fcf6f6&hm=58b35957f53ca0dea57e12eed1332443843cd56a6cad860efa4eac8bd93018e7&)
 
-# Juiced - Selling made easy  
+# Juiced - Supercharge your Resell Business  
 
 
-## An app that helps sellers source, list, and manage inventory. 
+## Juiced is an AI-powered reseller platform that provides tailored product recommendations, cross-platform listing, inventory/order management, website restock notifications, detailed sales analytics, 70+ premium tutorials and much more. 
 
 Our mission is to provide people who want to make money selling products online with the fastest, easiest and most awesome solutions to satisfy their needs. Juiced’s team is never short for new ideas and are constantly innovating for our users. Our motto is and will always be, customers first.
 
