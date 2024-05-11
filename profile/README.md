@@ -1,5 +1,5 @@
 
-![Juiced](https://cdn.discordapp.com/attachments/819570082707144795/1220570611412238387/github.jpg?ex=660f6bf6&is=65fcf6f6&hm=58b35957f53ca0dea57e12eed1332443843cd56a6cad860efa4eac8bd93018e7&)
+![Juiced](https://pbs.twimg.com/profile_banners/1166793345303289858/1707417905/1500x500)
 
 # Juiced - Supercharge your Resell Business  
 
